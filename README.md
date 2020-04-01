@@ -60,7 +60,7 @@
 <br>
 <br>
 <br>
-  Craft Estates has all the favorite styles available for you to enjoy.
+  Craft Estates has all the favorite styles available for you to enjoy. Like, the classic Farmhouse.
 <br>
 <br>
 <br>
@@ -82,3 +82,12 @@ Some pretty sweet Victorian houses
 <br>
 <br>
 <img src="https://static.planetminecraft.com/files/resource_media/screenshot/1735/2017-09-01-17-17-39-1504300682.png">
+<br>
+<br>
+<br>
+<br>
+   A medieval keep, if you're rich enough.
+<br>
+<br>
+<br>
+<img src="https://wwwgrabcraftcom-jzoul76nauwdp2hxnkfs.stackpathdns.com/files/products/large/large_medieval-keep-3-744.png">
