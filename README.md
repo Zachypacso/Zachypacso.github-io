@@ -33,8 +33,5 @@
   
   <img src="https://img.youtube.com/vi/Ja2pddgFtBs/hqdefault.jpg">
   
-  And this.....ooh....
-  
-  <img src-="https://pm1.narvii.com/6421/0b6e8a7c5c7c4f59cf6bde1061ae374279608d38_hq.jpg">
-
+ 
 </div>
