@@ -39,7 +39,9 @@
   <br>
   And this.....nah, we can't do this.
   <br>
-  
+  <br>
+  <br>
+  <br>
   <img src="https://i.pinimg.com/originals/d5/86/3d/d5863dbabc5f19fec1745ef739b913a9.jpg">
   <br>
  At Craft Estates, we can make your dream home a reality home. With excellent coverage, an experinced team of realtors, and loads of cash just laying around for our customers, Craft Estates is right for you! We can turn an already existing home into a serious upgrade too!
