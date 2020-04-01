@@ -91,3 +91,7 @@ Some pretty sweet Victorian houses
 <br>
 <br>
 <img src="https://wwwgrabcraftcom-jzoul76nauwdp2hxnkfs.stackpathdns.com/files/products/large/large_medieval-keep-3-744.png">
+<br>
+<br>
+<br>
+And many more styles, all one click of a button away! As you can probably see, Craft Estates is the best real estate website around, with dozens of mansion for dozens of people! We can re-build an old home, help you buy a new one, or remodel a mansion thatdesperately needs a serious pick-me-up. 
