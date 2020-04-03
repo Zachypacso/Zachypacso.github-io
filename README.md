@@ -95,4 +95,4 @@ Some pretty sweet Victorian houses
 <br>
 <br>
 <br>
-And many more styles, all one click of a button away! As you can probably see, Craft Estates is the best real estate website around, with dozens of mansion for dozens of people! We can re-build an old home, help you buy a new one, or remodel a mansion that desperately needs a serious pick-me-up. 
+And many more styles, all one click of a button away! As you can probably see, Craft Estates is the best real estate website around, with dozens of mansion for dozens of people! We can re-build an old home, help you buy a new one, or remodel a mansion that desperately needs a serious pick-me-up. In fact, Craft Estates was rated Best Real Estate Provider for 3 years in a row! Until Riverside Abodes launched their stinking '10% off for first time customers' campaign....
